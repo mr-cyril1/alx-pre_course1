@@ -1,1 +1,1 @@
-Never i still be on thin programm up until now
+Never thought i'd still be on this programm up until now
